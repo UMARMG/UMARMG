@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... coding 
 - 🌱 I’m currently learning ... JS, HTML,CSS PYTHON, AND MORE CODING LANGUAGES 
 - 💞️ I’m looking to collaborate on ... CREATE PROJECT 
-- 📫 How to reach me ...https://github.com/UMARMG
+- 📫 How to reach me ...https: //wa.me/+2349060031624
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
